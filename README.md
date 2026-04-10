@@ -33,5 +33,5 @@ I'm a PharmD graduate with a passion for turning complex clinical and business d
 ## Connect with Me
 
 - 💼 LinkedIn: [https://www.linkedin.com/in/dr-pallavi-bhavsar-8579691ba]
-- 📧 Email: [bhavsarpallavi20012gmial.com]
+- 📧 Email: [bhavsarpallavi2001@gmail.com]
 - 🌐 Portfolio: [https://drive.google.com/file/d/1q-bMf9klAEhlYf8q_TDNFd5j_is79bKF/view?usp=drivesdk]
